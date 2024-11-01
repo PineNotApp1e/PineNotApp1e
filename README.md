@@ -5,7 +5,6 @@
 - 📫 How to reach me Discord
 - 😄 Pronouns: Pineapple
 - ⚡ Fun fact: I love eat Pizza pineapple
-- Auf der heide...
 
 <!---
 PineNotApp1e/PineNotApp1e is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
