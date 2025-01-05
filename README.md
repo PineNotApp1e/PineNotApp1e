@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PineNotApp1e
 - 👀 I’m interested in Deutshland
-- 🌱 I’m currently learning 1930
+- 🌱 I’m currently learning 1918
 - 💞️ I’m looking to collaborate on Gas station
 - 📫 How to reach me Discord
 - 😄 Pronouns: Pineapple
